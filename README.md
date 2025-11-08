@@ -10,17 +10,18 @@
 
 ### Why I Love It
 I’ve loved **Harry Potter** since I was a kid —  
-I always wanted to be a wizard and go to *Hogwarts*! 🪄  
+I always wanted to be a wizard and go to *Hogwarts*! 
 It’s such a big part of my childhood and still one of my favorite movie series ever.
 
 ---
 
 ### Favorite Quote
-> “It does not do to dwell on dreams and forget to live.” – Albus Dumbledore
+> “After all this time?”
+> “Always.” — Severus Snape, Harry Potter and the Deathly Hallows
 
 ---
 
 ### Fun Facts
-- My favorite spell is **Expelliarmus!**  
+- My favorite spell is **Stupefy!**  
 - I used to pretend I had an invisible cloak as a kid 
 - I still rewatch the movies whenever I miss the magic!
